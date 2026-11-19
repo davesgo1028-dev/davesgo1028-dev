@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm Daves Ortiz👋
 
 ### Programming & Software Development Student | Aspiring Software Developer
 
